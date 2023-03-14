@@ -1,1 +1,1 @@
-# Online-Retail-Analysis
+In my engagement with the TATA Group, I identified key business questions that would be pertinent to the CEO and CMO of an online retail store. To effectively communicate my insights, I carefully selected visuals that would capture the senior managers' attention and highlight important details. Finally, I shared my findings and recommendations with the senior managers.
